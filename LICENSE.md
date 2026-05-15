@@ -1,4 +1,4 @@
-
+Get the ultimate IVPN client with updated IVPN Client | tracker-blocker + smart-DNS. Featuring tracker-blocker and smart-DNS, it's the best choice for secure and private internet
 
 
 
